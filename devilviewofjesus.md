@@ -18,7 +18,7 @@ When the devil 'tempts' Jesus, he offers power in exchange for worship:
 
 Although the devil does not understand God's love, he is fully aware of his status and power. He has witnessed the sinless life of Jesus and his recent baptism, but he wouldn't ask Jesus to worship him if he was sure that Jesus is the incarnate Son of God. However the expansive nature of the temptation shows that he has his suspicions.
 
-Having his suspicions confirmed, or at least reinforced, the devil backs off 'until an opportune time'. But what is the opportunity he is looking for? He wants to prove that mankind is irredeemably rebellious and must be destroyed. 'he is always looking for opportunities to bring this to God's attention, so that he may become the agent of judgement:
+Having his suspicions confirmed, or at least reinforced, the devil backs off 'until an opportune time'. But what is the opportunity he is looking for? He wants to prove that mankind is irredeemably rebellious and must be destroyed. He is always looking for opportunities to bring this to God's attention, so that he may become the agent of judgement:
 
 > But stretch out your hand and touch all that he has, and he will curse you to your face.” (Job 1:11)
 
